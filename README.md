@@ -15,4 +15,4 @@
 安全方面，平台使用HTTPS加密技术保护用户隐私，杜绝信息泄露。无广告弹窗设计营造舒适安全的观看环境。  
 综合来看，午夜小视频在线观看黄色平台凭借丰富资源、高品质播放、便捷操作和隐私保障，成为成人影视爱好者的优选平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/jour54432/ribenvv9)</span>
